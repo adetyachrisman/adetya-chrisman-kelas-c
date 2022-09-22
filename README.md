@@ -1,1 +1,0 @@
-# adetya-chrisman-kelas-c
